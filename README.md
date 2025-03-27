@@ -2,7 +2,7 @@
 - 👀 I’m interested in website and applicaton management
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on a perfect game site
-- 📫 you can reach me on whatsapp with- 07063956813
+- 📫 you can reach me on whatsapp with- +2347063956813
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i'd love to get married 🤣
 
